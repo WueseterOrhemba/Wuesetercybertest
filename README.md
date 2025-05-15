@@ -9,7 +9,7 @@ Cybersecurity Analyst
 * 🌍  I'm based in Plateau State
 * 🖥️  See my portfolio at [My profile](https://www.linkedin.com/in/wueseter-orhemba-977b69253/)
 * ✉️  You can contact me at [favourorhemba@gmail.com](mailto:favourorhemba@gmail.com)
-UC5Zr_HqLeqtJZ_Ys2wO2_CQ
+
 
 
 ### <h2> Certifications
